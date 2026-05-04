@@ -27,7 +27,6 @@ I am always open to professional networking, collaboration, and discussing techn
 ---
 *Thank you for visiting my profile. Please expect to see new repositories and projects updated here shortly.*
 
-[Watch my self-introduction video here](https://github.com/user-attachments/assets/f6251400-3a24-45fa-b930-2d5545b73c38)
 
 
 
